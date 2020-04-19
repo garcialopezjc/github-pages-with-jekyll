@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Bienvenidos a mi blog
 
-I'm glad you are here. I plan to talk about ...
+Me alegra que estén aquí. Hablaré de sociedad y cultura, pero mantendré enfocados mis esfuerzos en el tema de la adolescencia.
+Un saludo fraternal :)
